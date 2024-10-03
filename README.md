@@ -8,6 +8,7 @@ Extra Life - Kirby Super Star
 
 Joke: Green Shit- Spongebob Remix, i tried rendering the video in ableton and after finally getting it to not crash it spat this out. awesome
 ### [Day 3 - Fish](/Day03.mp3)
+# [(alt)](/Day03_alt.mp3)
 Eureka River - Ultimate Angler / StreetPass Fishing
 
 Joke: underscores - Del mar county fair 2008. classic emma mth 4/4 on 6/8 moment
