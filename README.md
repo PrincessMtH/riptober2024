@@ -12,3 +12,7 @@ Joke: Green Shit- Spongebob Remix, i tried rendering the video in ableton and af
 Eureka River - Ultimate Angler / StreetPass Fishing
 
 Joke: underscores - Del mar county fair 2008. classic emma mth 4/4 on 6/8 moment
+## [Day 4 - Log](/Day04.mp3)
+Nintendo 3DS Music - Activity Log (Intro)
+
+Joke: snow halation. i had to do something quick bc i forgot yesterday
